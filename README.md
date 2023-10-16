@@ -1,1 +1,1 @@
-# MobileAppEthiopia
+# Ethiopian_languages
